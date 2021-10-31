@@ -5,4 +5,4 @@
 - 🥂 I'm intrested in learning about cloud computing programs such as AWS and Azure
 - 🌸 My favourite hobbies are sewing and creating abstract resin art
 
-- 🌹 Fun fact: When I was younger, I absolutely loved to smell of wood so I used to constantly chew penci
+- 🌹 Fun fact: When I was younger, I absolutely loved to smell of wood so I would constantly chew pencils 
